@@ -1,0 +1,17 @@
+baseURL = "https://loveforall.my.id/"
+title = "Pena"
+paginate = 5
+theme = "PaperMod"
+
+enableRobotsTXT = true
+buildDrafts = false
+buildFuture = false 
+buildExpired = false
+googleAnalytics = "UA-XXXXXX"
+
+[minify]
+disableXML = true
+minifyOutput = false # Cloudflare Pages has issues when true
+
+[params]
+env = "production"
