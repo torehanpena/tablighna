@@ -1,21 +1,12 @@
 <?xml version="1.0" encoding="utf-8" standalone="yes"?>
 <rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom">
   <channel>
-    <title>Pena</title>
-    <link>https://torehanpena.github.io/</link>
-    <description>Recent content on Pena</description>
+    <title>Posts on Pena</title>
+    <link>https://torehanpena.github.io/posts/</link>
+    <description>Recent content in Posts on Pena</description>
     <generator>Hugo -- gohugo.io</generator>
     <copyright>© Copyright notice</copyright>
-    <lastBuildDate>Mon, 11 Mar 2019 00:00:00 +0000</lastBuildDate><atom:link href="https://torehanpena.github.io/index.xml" rel="self" type="application/rss+xml" />
-    <item>
-      <title>About</title>
-      <link>https://torehanpena.github.io/about/</link>
-      <pubDate>Fri, 19 Apr 2019 21:37:58 +0530</pubDate>
-      
-      <guid>https://torehanpena.github.io/about/</guid>
-      <description>This is some static page where you can write about yourself.</description>
-    </item>
-    
+    <lastBuildDate>Mon, 11 Mar 2019 00:00:00 +0000</lastBuildDate><atom:link href="https://torehanpena.github.io/posts/index.xml" rel="self" type="application/rss+xml" />
     <item>
       <title>Markdown Syntax Guide</title>
       <link>https://torehanpena.github.io/posts/post-8/</link>
