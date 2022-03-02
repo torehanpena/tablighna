@@ -1,0 +1,18 @@
+---
+title:  "IN MEMORIUM Sdr.Marzuki Barus - MLN. ATAUR RAZAQ SAHIB."
+date: 2004-07-07T12:13:30+05:30
+description: "Adinda, wafat di Medan dalam usia 49 tahun dalam cuti pulang menghadiri syura Jemaat Ahmadiyah Indonesia hari senin tanggal 26 April 2004 adalah satu berita  via SMS ketika aku berada di Banten melihat seorang rekan pejuang tabligh sukarelawan Rahim Daeng Patunru yang sedang sakit, adalah berita yang mengejutkan dan menyedihkan hatiku.  " 
+tags:   [ Kawan Perjuangan ]
+---
+Adinda, wafat di Medan dalam usia 49 tahun dalam cuti pulang menghadiri syura Jemaat Ahmadiyah Indonesia hari senin tanggal 26 April 2004 adalah satu berita  via SMS ketika aku berada di Banten melihat seorang rekan pejuang tabligh sukarelawan Rahim Daeng Patunru yang sedang sakit, adalah berita yang mengejutkan dan menyedihkan hatiku. 
+
+> Engkau pendawah Ahmadiyah di Lombok Timur adik Maulana Khaeruddin Barus Shd.Pendakwah Jemaat di Papua nugini.  Aku tahu engkau mempunyai cita-cita yang mulia  dan besar yang engkau niatkan pelaksanaanya dihari depanmu pasca tugas dakwah dinas terikat hingga sekira lima tahun lagi. 
+
+Katamu engkau hendak mendirikan pesantren pendidikan Islami di Sumatra Utara.  Dan sejak sekarang menyediakan sarana dalam tiap kesempatan terulang, kiranya Allah memanggilmu kembali, telah cukup kiranya kebaktian adinda kepada Jemaat-Nya apa yang sudah berlaku dan berlalu. 
+
+Melintas dalam ingatanku engkau ditahan penguasa militer di daerah Riau Sumatra Tengah. Di tuduh bersalah walaupun dalam kejadian itu Mesjid Ahmadiyah yang dibakar para penghasut dari Duri, engkau Mubaligh Jemaat Pekan Baru.Aku turun atas sepakat Jemaat menggiring pelaku ke Pengadilan dan mereka masing-masing dihukum beberapa bulan penjara. Jaksa dan Hakim Pengadilan di Riau masih manusiawi.Kemudian engkau beberapa tahun di pindahkan berbakti dalam pertablighan dan pendidkan Islami di Papua Nugini alias Irian Timur di tengah hutan belantara dimana manusia buta norma-norma agama di mana engkau turut makan talas.Kemudian engkau di mutasi ke Lombok bertugas di kota Mataram.  Masa engkau di sana kedengar terkena huru hara massa hasut ulama, membakar dan menghancurkan Mesjid dan ratusan  rumah orang Ahmadi. 
+
+Polisi dan Penguasa tidak berwibawa menghadapi mereka.  Aku tidak turun kesana karena banyak tokoh-tokoh dan sarjana di Jawa layak dan patut mengurusi apa saja.Engkau tetap berdiri disana bertaqwa kepada Ilahi, tidak mundur dari garis depan.Puji kami kehadirat Allah yang menjadikan engkau panglima pasukan yang sabar dan tanguh bertahan menghadapi musuh-musuh Jemaat, tidak berpaling kegaris belakang. 
+
+Kulihat dan kutahu engkau di bawa Maulana Mhd. Sadiq bin Barakatullah Shd mengikuti abangmu belajar disekolah mubalighin di Rabwah Pakistan.  Kau tinggalkan ayah dan ibumu dan saudara-saudaramu keluarga yang miskin harta tinggal di rumah kayu berlantai tanah, tetapi cerita ayahmu kepadaku dahulu bahwa ketika mengandung engkau dan Khaeruddin masing-masing telah mendapat mimpi yang indah dan ajaib, hal itu telah sempurna, engkau dan abangmu telah menjadi Mubaligh Ahmadiyah, tanda Allah rela atas hidup ibumu, bidan miskin, tetapi saleh.  Engkau tidak memperdulikan apa kata orang yang benci dan mencaci maki, namun kamu menerangi dan mendoakan mereka dengan cinta.  Engkau salah satu bintang tanah Karo yang melintas di alam mereka yang gelap, ah selintas  cahaya yang tidak dapat dikejar.  Engaku mempunyai istri dan anak anak, semoga keturunanmu meneruskan cita-citamu yang mulia, mencapai kemenangan Islam yang sejati.  Kami doakan engkau adik, dan doakanlah kami yang tinggal, Amin. 
+> [Nasboon Mahmud,Medan] SUARA ANSHARULLAH NO 7 JULI 2004 HAL/29-3O] 

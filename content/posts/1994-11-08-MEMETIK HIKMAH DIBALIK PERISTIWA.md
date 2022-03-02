@@ -1,0 +1,34 @@
+---
+title:  "MEMETIK HIKMAH DIBALIK PERISTIWA"
+date: 1994-11-08T12:13:30+05:30
+description: "kerinduan  Sdr. Sapto Waluyo masih ada di garis kewajaran.  Rindu kenyataan dan fakta bukan formulasi teoritis, tentu saja kerinduan semacam ini tetap bergetar dalam dada para mujahid. " 
+tags: [ reportase, dinamika hikmah, dialog ]
+---
+> Dalam Perumahan Negara RI yang memiliki Dasar Pancasila dan UUD 45, memiliki asas kemerdekaan beragama dan kebebasan menjalankan ibadah menurut keyakinan dan kepercayaannya itu.  Dan merupakan ciri khas orang Ahmadi dimana saja berada berharap rukun guyub tak mau ribut. 
+
+Suasana rukun masyarakat Warungkiara selama ini, cukup baik, mulai terganggu, berawal dari isi ceramah Ketua MUI Desa (`nama disamarkan`), Rabu malam {9/11} yang disampaikan di Mesjid Jami "Darul Ulum” Cigombong, isi ceramah bernada mengahasut, ia berkata: *"Yang namanya Anjing, walaupun dikalungi emas tetap saja  anjing"*.  Seterusnya ia berkata: *"Sesuatu yang memalukan masyarakat apabila papan nama Ahmadiyah tetap di pasang, si tangkurak"*.  Suatu ucapan yang sebenarnya tidak pantas disampaikan oleh seseorang yang mengaku dirinya "Warosatul Anbiyaa".  Walaupun ucapan tersebut tidak langsung mempengaruhi sikap masyarakat mayoritas Warungkiara terhadap Ahmadiyah; bahkan ada beberapa tokoh non Ahmadi yang melecehkan isi ceramah tersebut,seorang tokoh berucap: *"Rahasianya ada dalam saku saya"*. 
+
+Sebagai warga yang menginginkan terpeliharanya kerukunan, Kamis {10/11} Penulis dan Ketua Jemaat Warungkiara Bp. Akromuddin Ahmad melaporkan kejadian tersebut kepada Kepala Desa, selaku aparat penyelenggaraan Pemerintah Desa beliau mengatakan: *"Masalah Agama/Politik sangat pelik. Sebaiknya Sdr laporkan langsung  kepada  Dan Ramil"*.  Atas dasar nasehat Kepala Desa, Sabtu malam {12/11} Kami melapor kepada Dan Ramil tentang isi ceramah Ketua MUI tersebut.  Belum sampai kami menyampaikan laporan secara rinci; rupanya ada surat undangan untuk jajaran Pengurus Jemaat Warungkiara telah siap disampaikan saat itu.  Penulis berperasangka baik, karena persoalan akan segera selesai. Selanjutnya Senin Pagi {14/11} kami berenam [penulis, Bp. H.  Akromuddin, Bp. Jalaluddin, Bp. H. Sadiq, Bp. Edy Karma, dan Sdr. Jajat Mujizat], hadir memenuhi undangan Dan Ramil Bp. Tatang Wahyu.  Dalam pertemuan tersebut Muspika Kec. Warungkiara beserta staf nampak hadir Kepala KUA di wakili Pendais beserta staf, Bapak Kepala Desa Bp. Enjang ada, yang mengherankan justru dari MUI sebagai pencetus suasana tidak hadir, tanpa alasan.  
+
+Setelah pembukaan, Bapak Dan Ramil lalu membacakan setumpuk berkas keputusan yang bersumber dari Fatwa MUI Pusat, Rabithah Alam Islami, LPPI dan ditambah Instruksi lisan Dan Dim 0807 Sukabumi.  Bahwa Ahmadiyah katanya dilarang secara Nasioanl.  Lalu Kapolsek membacakan pasal-pasal sanksi hukuman pidana bagi yang tidak taat kepada Keputusan tersebut. 
+
+Bapak Camat dan Kepala Desa mengaminkan.  Walaupun wakil dari KUA sedikit meringankan kami dalam hal penafsiran "Khatam Nabiyyin" Mereka agar orang-orang Ahmadi bergabung dengan ummat Islam lainnya dan sejak itu harus ikut berjumatan di Mesjid "Darul Ulum". Tiba saat Hari Jumat, lewat pengeras suara bahwa mulai Hari Jumat ini mereka orang-orang Ahmad akan bergabung dengan kita.  Saat itu penulis sengaja memimpin khutbah dan shalat Jumat di mesjid Jemaat Ahmadiyah.  Menunggu waktu-waktu sunnguh menegangkan Kaum muslimin yang mau Jumatan di Mesjid Jami Daru Ulum mengarah perhatian ke Mesjid kita. Ada satu hal menarik ketika kita berpamitan untuk pulang dari Kantor Kecamatan Bp. Bersalam kepada mereka sambil bersumpah: "Bapak-bapak lihat aja nanti bukti, siapa yang benar akan ditampakkan Allah Taala" selang seminggu Timbullah di Warung kiara heboh besar yang menimpa para penentang. Pihak Ahmadiyah tidak banyak kesempatan untuk menyampaikan keberatan. Hasil keputusan mutlak. 
+
+Pertama, melarang mendirikan shalat Jumatan di Mesjid Ahmadiyah untuk sementara waktu dan menghimbau agar ikut shalat di Mesjid Jami Darul Ulum Mesjid Desa. 
+
+Kedua, melarang kegitan pengajian-pengajian yang bersifat intern dan ekstrn (Peringatan Hari-hari besar Islam). 
+
+Ketiga, pencabutan papan nama Jemaat Ahmadiyah Warungkiara tanpa minta izin atau pemberitahuan kepada kami. Tentu saja kami menolak keputusan-keputusan tersebut, Kami akan konsultasikan dengan pimpinan Ahmadiyah di Parung Bogor, tentu hasilnya nanti akan disampaikan kepada Dan Ramil.  Kamis {16/11} Delegasi Jemaat Warungkiara menghadap Bapak Amir Nasional di Parung Bp. Ir.A.Lubis,Msc dan beliau memerintahkan kami: 
+
+1. Teruskan/Lakukan Ibadah dan kegiatan-kegiatan lainnya termasuk Shalat Jumat, bahkan lebih ditingkatkan dan banyak berdoa. 
+
+2. Meminta larangan secara tertulis dari Pejabat yang melarangnya. 
+
+3. Warga Jemaat Cab. Warungkiara harus siap menjadi Bilal-bilal. 
+
+4. Untuk menghubungi Kodim 0607 Sukabumi merupakan tugas MajlisAmilah. {P.B} 
+
+Kamis malam {17/11} Delegasi Jemaat menyampaikan hasil konsultasi dengan Pusat ke Danramil.  Pertemuan berjalan alot.  Bapak Dan Ramil tidak dapat membuktikan larangan secara tertulis dan mengatakan: *"Kami tidak melarang shalat Jumat; Tetapi kami menghimbau agar shalat jumat warga Ahmadiyah bersatu di Mesjid Darul Ulum, kalau tidak melaksanakan, itu tanggungjawab warga jemaat, yakni sanksi."* 
+
+Delegasi Ahamadiyah tetap berpegang teguh kepada Instruksi Bapak Amir, seorang  delegasi  membantah: *"Suatu hal yang mustahil bagi kami warga Ahmadi mau shalat dibelakang orang yang menganggap kami anjing"*.  Sejak malam {17/11} sampai Jumat {18/11} Doa Warga Jemaat saat Ahmadiyah WarungKiara terus dilakukan secara intensip (Tahajud bersama, doa setelah shalat subuh dan kifarat dengan menyembelih Kambing).  Tanggal 18 November 1994, Ketika seluruh warga Ahmadi memasuki Mesjid Ar-Rahman untuk melaksanakan shalat jumat.  Terlihat di wajah para anggota tegar dan keteguhan, tanpa memperlihatkan kekhawatiran.  Karunia Allah SWT berkat doa semua  anggota Ahmadi sedang menunggu shalat Jumat {18/11} jam 11.10 {WIB,  Seseorang datang ke Mesjid untuk memberitahukan bahwa ada telepon dari Bapak Dan Ramil untuk Ketua Jemaat Wr.Kiara.  Bapak ketua yang sedang berada di Mesjid beranjak menerima telepon, ternyata di Rumah Bapak Ketua telah hadir Bapak Dan Ramil dengan mengendarai mobil, menyampaikan langsung berita bahwa warga Jemaat dipersilakan shalat Jumat. Sebagaimana bisa dilaksanakan di Mesjid Ar-Rahman.  Mengenai papan nama yang diturunkan mereka agar di ambil kembali di Kantor Dan Ramil.  Dan dalam memperingati Hari-hari besar Islam jajaran MUSPIKA supaya di undang.  Ternyata ada kelemaham pokok dari warga kita.  Ada celah kesenjangan hubungan dengan MUSPIKA, lalu dimanfaatkan oleh oknum yang tidak senang keberadaan Ahmadiyah. Di Tingkat Kodim ada pejabat yang belum faham keberadaan Ahmadiyah yang sebenarnya. Mudah-mudahan kita dapat memetik hikmah dibalik peristiwa. 
+> {T.Hidayatullah}

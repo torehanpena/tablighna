@@ -1,6 +1,6 @@
 baseURL = "https://torehanpena.github.io/"
-title = "Pena"
-paginate = 5
+title = "Torehan Pena"
+paginate = 40
 theme = "hugo-ink"
 
 enableRobotsTXT = true
@@ -10,7 +10,7 @@ buildExpired = false
 googleAnalytics = "UA-XXXXXX"
 
 
-copyright = "© Copyright notice"
+copyright = "© Haturnuhun"
 
 pygmentsstyle = "vs"
 pygmentscodefences = true
@@ -20,46 +20,42 @@ disqusShortname = "ink-demo"
 
 [params]
 env = "production"
-	subtitle = "Crisp, minimal personal [blog theme for Hugo](https://github.com/knadh/hugo-ink)"
+	subtitle = "Kliping, Reportase dari masa ke masa (https://torehanpena.github.io)"
 
 	# Optional 64x64 avatar image.
-	avatar = "https://image.freepik.com/free-vector/young-man-head-with-beard-avatar-character_24877-36786.jpg"
+	avatar = "https://miro.medium.com/fit/c/262/262/1*7yslpgKWZyLnE0S9HDPZpQ.jpeg"
 
 	# Content types to disable Disqus on.
 	disableDisqusTypes = ["page"]
 	
 	featherIconsCDN = true
 
-	mode = "auto" # "dark" or "auto"
+	# mode = "auto" # "dark" or "auto"
 	# customCSS = "css/custom.css"  # Custom CSS applied to default styles.
 	# customDarkCSS = "css/custom-dark.css"  # Custom styles applied to dark mode css.
 	# customJS = ["js/custom.js", "js/custom1.js"]  # Custom JS scripts.
 
 # Nav.
 [[menu.main]]
-name = "Home"
+name = "Kumpulan Tulisan"
 url = "/"
 weight = 1
 
-[[menu.main]]
-name = "All posts"
-url = "/posts"
-weight = 2
 
 [[menu.main]]
-name = "About"
-url = "/about"
+name = "Tentang Penulis"
+url = "/penulis"
 weight = 3
 
 [[menu.main]]
-name = "Tags"
-url = "/tags"
+name = "Perjalanan"
+url = "/masa"
 weight = 4
 
 [[params.social]]
 name = "Github"
 icon = "github"
-url = "https://github.com/knadh/hugo-ink"
+url = "https://github.com/torehanpena"
 
 [[params.social]]
 name = "RSS"
