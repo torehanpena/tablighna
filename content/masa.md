@@ -46,10 +46,10 @@ Di cabang Markas karunia sebagai Nazim ‘Ala, sek. Tarbiyyat dan Dewan Islah.
 ---- 
 ### Perjalanan menuju  Kota Padang
       
-Setelah lulus dari KKPM  atau Kursus Kader  Mubaligh  pada th 1974 di Tasikmalaya, mendapat SK tugas pertama ke kota Padang.
+> Setelah lulus dari KKPM  atau Kursus Kader  Mubaligh  pada th 1974 di Tasikmalaya, mendapat SK tugas pertama ke kota Padang.
 
 Untuk mendapatkan alamat yang pasti suami saya singgah di Mesjid Balikpapan dan menanyakannya kepada yang terhormat Bp Rais-Ut-Tabligh  Imamuddin Sy.
 
-Jawaban dari beliau sangat berkesan dan terngiang sampai saat ini dan akan selalu dijadikan  pelajaran yang berharga; *"kamu kan punya mulut"*   Suami saya pun  pamitan dengan uang transport yang pas-pasan dan diantar oleh Bp Hidayatullah putra Bp. Murtolo SH sampai Tanjung Priok. 
+> Jawaban dari beliau sangat berkesan dan terngiang sampai saat ini dan akan selalu dijadikan  pelajaran yang berharga; *"kamu kan punya mulut"*   Suami saya pun  pamitan dengan uang transport yang pas-pasan dan diantar oleh Bp Hidayatullah putra Bp. Murtolo SH sampai Tanjung Priok. 
 
 Setelah mendapatkan Tiket naiklah ke Kapal yang bagian Dek Kapal.  Dapat dibayangkan dalam waktu 3 hari pengalaman perjalanan pertama kali menuju Teluk Bayur berada di Dek kapal bisa mabuk laut.  Namun dengan Karunia Allah Ta’ala pertolongan pun datang.  Suami saya bertemu dengan seorang dokter Ahmadi Bp. Nurdin satu kapal hanya bedanya beliau menyewa kamar kemudian beliau pun mengajak suami saya untuk ikut di kamarnya.  Lega rasanya   mendapat secercah harapan mendapat petunjuk alamat yang dituju.  Setelah tiba di Teluk Bayur berpisah dengan Pak dokter.  Kemudian suami saya di jemput oleh Pengurus Jemaat Cabang padang yang sebelumnya telah dikontak oleh Pak dokter. *Alhamdulillah.*	
